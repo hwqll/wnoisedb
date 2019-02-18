@@ -17,4 +17,4 @@ f) Other disclosures that this application considers appropriate in accordance w
 4. Information security
 a) We will not submit or upload your information, so your information is absolutely safe
 ###PrivateProtocol###
-####https://66561234.com
+###https://66561234.com
